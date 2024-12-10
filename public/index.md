@@ -9,7 +9,8 @@
 # Miembro del año (Loquendo Alert)
  - Hermer
  - Yoshimix
- - a
+ - Rayman
+ - Vaps
  
   # Meme del Año
   # Fichaje del Año
@@ -32,10 +33,12 @@
 - Hasterbook
 
 # Video Elite del Año
-- un video de haster
-- un video de luis
-- un video de alert el de la realidad
-- un video de kerry
+- Nunca entres a Discord (Luisfriends) [Link](https://youtu.be/IcTwJslelCQ)
+- Loquendo city los Sicarios (Hasterbook) [Link](https://youtu.be/mf9Slhs2Be4)
+- La Mansion Embrujada 2 (chrisbrur) [Link](https://youtu.be/i3qj_TRL89Y)
+- premios kokendo (BollyPlox) [Link](https://youtu.be/aWiXFvNDWXM)
+- T.A.R.N.P Playa Problemática (To Aru Rekishi no Perukistan) [Link](https://youtu.be/B7P_QkGEnGw)
+- Recuperando el sol (Konusi) [Link](https://youtu.be/GKepPL5l_OE)
 
 # Suceso del Año
 - La muerte de Ozzy en directo
