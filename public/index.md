@@ -13,6 +13,9 @@
  - Vaps
  
   # Meme del Año
+  - Rayman homofobico
+  - a
+
   # Fichaje del Año
 - Hasterbook
 - Vaps
