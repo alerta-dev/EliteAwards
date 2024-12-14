@@ -11,10 +11,15 @@
  - Yoshimix
  - Rayman
  - Vaps
+ - Kayser
+ - Overns
  
   # Meme del Año
-  - Rayman homofobico
-  - a
+  - Rayman homofobico (Hermer y Rayman)
+  - Gusanito doxeador meme gamota (LuisFriends)
+  - Pasen el chisme (Hermer)
+  - No lo se, tu que opinas kerry (Kerry)
+  - Ola (Jose Roblox)
 
   # Fichaje del Año
 - Hasterbook
@@ -27,10 +32,12 @@
 # Pelea del Año
 - Luis VS Santigus
 - Kerry VS Goto
+- Non vs Gamota
 - Non VS Alert
+- Gamota del Año
 
 # Moderador del Año
-- LuisFriends
+- LuisFriends 
 - Ferncraft
 - Non
 - Hasterbook
@@ -44,7 +51,11 @@
 - Recuperando el sol (Konusi) [Link](https://youtu.be/GKepPL5l_OE)
 
 # Suceso del Año
-- La muerte de Ozzy en directo
+- La muerte de Ozzy en directo (Bolly)
+- Reset (Loquendo Alert)
+- Estacion monika (Estacion loquendo)
+- La voz de carlos (La voz de carlos)
+- 
 
 # Chismoso del Año
 - Kerry
@@ -64,3 +75,7 @@ Non
 - Deah
 
 # Premio Reconocimiento del Año
+- Vaps
+  
+# Out to context del año
+
