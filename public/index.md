@@ -13,15 +13,26 @@
  - Vaps
  - Kayser
  - Overns
+
+# Moderador del Año (Loquendo Alert)
+- LuisFriends 
+- Ferncraft
+- Non
+- Hasterbook
+                                  
+ # Out to context del año (Loquendo Alert)
  
-  # Meme del Año
+
+  # Meme del Año (Loquendo Alert)
   - Rayman homofobico (Hermer y Rayman)
   - Gusanito doxeador meme gamota (LuisFriends)
   - Pasen el chisme (Hermer)
   - No lo se, tu que opinas kerry (Kerry)
   - Ola (Jose Roblox)
+  - Funeral de Ozzy (Kerry)
+   
 
-  # Fichaje del Año
+  # Fichaje del Año (La elite)
 - Hasterbook
 - Vaps
 - Konusi
@@ -29,20 +40,14 @@
 - Wrench
 - Alonso
 
-# Pelea del Año
+# Pelea del Año (General)
 - Luis VS Santigus
 - Kerry VS Goto
 - Non vs Gamota
 - Non VS Alert
 - Gamota del Año
 
-# Moderador del Año
-- LuisFriends 
-- Ferncraft
-- Non
-- Hasterbook
-
-# Video Elite del Año
+# Video Elite del Año (La elite)
 - Nunca entres a Discord (Luisfriends) [Link](https://youtu.be/IcTwJslelCQ)
 - Loquendo city los Sicarios (Hasterbook) [Link](https://youtu.be/mf9Slhs2Be4)
 - La Mansion Embrujada 2 (chrisbrur) [Link](https://youtu.be/i3qj_TRL89Y)
@@ -50,7 +55,7 @@
 - T.A.R.N.P Playa Problemática (To Aru Rekishi no Perukistan) [Link](https://youtu.be/B7P_QkGEnGw)
 - Recuperando el sol (Konusi) [Link](https://youtu.be/GKepPL5l_OE)
 
-# Suceso del Año
+# Suceso del Año (General)
 - La muerte de Ozzy en directo (Bolly)
 - Reset (Loquendo Alert)
 - Estacion monika (Estacion loquendo)
@@ -58,17 +63,17 @@
 - Funa al hombre G
   
 
-# Chismoso del Año
+# Chismoso del Año (La elite)
 - Kerry
 - Hasterbook
 - Luis
 - Alert
   
 
-# Ardido del Año
+# Ardido del Año (La elite)
 Non
 
-# Frase del Año
+# Frase del Año (La elite)
 - Hay cabron (Bolly)
 - Kheee?! (Rayuga)
 - Para triunfar tienes que mamarsela a alert 🗣️🔥 (Kerry)
@@ -78,8 +83,7 @@ Non
 - Very nice (Luisfriends)
 - Amiigooo (Ans)
 
-# Premio Reconocimiento del Año
+# Premio Reconocimiento del Año (Loquendo Alert)
 (Alert Sabe quien es)  
 
-# Out to context del año
 
