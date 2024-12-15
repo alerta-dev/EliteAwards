@@ -55,6 +55,7 @@
 - Reset (Loquendo Alert)
 - Estacion monika (Estacion loquendo)
 - La voz de carlos (La voz de carlos)
+- Funa al hombre G
 - 
 
 # Chismoso del Año
@@ -62,20 +63,23 @@
 - Hasterbook
 - Luis
 - Alert
+- 
 
 # Ardido del Año
 Non
 
 # Frase del Año
-- Hay cabron
-- Kheee?!
-- Para triunfar tienes que mamarsela a alert 🗣️🔥
-- El alert tiene contactos
-- Ya vas a llorar? 
-- Deah
+- Hay cabron (Bolly)
+- Kheee?! (Rayuga)
+- Para triunfar tienes que mamarsela a alert 🗣️🔥 (Kerry)
+- El alert tiene contactos ()
+- Ya vas a llorar? (Blest)
+- Deah (Alert)
+- Very nice (Luisfriends)
+- Amiigooo (Ans)
 
 # Premio Reconocimiento del Año
-- Vaps
-  
+(Alert Sabe quien es)  
+
 # Out to context del año
 
