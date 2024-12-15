@@ -56,14 +56,14 @@
 - Estacion monika (Estacion loquendo)
 - La voz de carlos (La voz de carlos)
 - Funa al hombre G
-- 
+  
 
 # Chismoso del Año
 - Kerry
 - Hasterbook
 - Luis
 - Alert
-- 
+  
 
 # Ardido del Año
 Non
